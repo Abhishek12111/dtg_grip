@@ -1,1 +1,0 @@
-# dtg_grip
